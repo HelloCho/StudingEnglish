@@ -9,7 +9,7 @@ First, Students need breaks.
 To be specific, they are stressed due to schoolwork.
 so their brain needs time to relex, (refresh)
 if they release their stress effectively by something,
-they (will) learn to study better.
+they will learn to study better.
 
 Second, Students are important for persnal development.
 
@@ -21,12 +21,10 @@ and they will help to have a head start in a job market.
 
 Q. to relex, refresh 같이 써도 되나요?
 
-Q. (will) 을 써도 괜찮을까요?
-
 Q. 마지막 they will help... / this will help... 둘중 아무거나 써도 괜찮을까요?
 
 
-> **I prefer choosing  (a?) one major.**
+> **I prefer choosing (a?) one major.**
 
 ```
 
@@ -44,7 +42,7 @@ to other things so they can broaden their perspective.
 
 Q. (a?) one major 일 때, a를 쓰면 안 되죠?
 
-Q. Students (can?)을 써도 괜찮나요?
+Q. Students (can?) 을 써도 괜찮나요?
 
 
 > **I prefer doing assignment bit by bit.**
