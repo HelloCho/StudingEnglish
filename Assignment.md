@@ -38,7 +38,9 @@ Second, Students (can?) enable to do extracurricular activites.
 To be specific, they have more time to devote
 to other things so they can broaden their perspective.
 ```
+
 Q. (a?) one major 일 때, a를 쓰면 안 되죠?
+
 Q. Students (can?)을 써도 괜찮나요?
 
 > **I prefer doing assignment bit by bit.**
