@@ -22,7 +22,7 @@ Q. to relex, refresh 같이 써도 되나요?
 
 Q. (will) 을 써도 괜찮을까요?
 
-Q. 마지막 they will help... / this will help 둘중 아무거나 써도 괜찮을까요?
+Q. 마지막 they will help... / this will help... 둘중 아무거나 써도 괜찮을까요?
 
 > **I prefer choosing  (a?) one major.**
 ```
