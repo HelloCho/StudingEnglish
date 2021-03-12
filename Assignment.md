@@ -79,6 +79,8 @@ therefore, they are helpful to grow up in life
 Second, Children learn to be fair.
 
 For instance, if other people help them,
-they do not earn grade honestly
+they(students?) do not earn grade honestly
 and they forget to learn quickly.
 ```
+
+Q. if other people help them, they... 로 쓰면 students로 알아보는지 other people로 알아보는지 헷갈리네요!
