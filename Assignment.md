@@ -19,7 +19,7 @@ and they will help to have a head start in a job market.
 (= this will help them to have a head start in a job market. )
 ```
 
-Q. brain needs time to relex, refresh 이렇게 같이 써도 되나요?
+Q. Their brain needs time to relex, refresh 이렇게 같이 써도 되나요?
 
 Q. 마지막 they will help... / this will help... 둘중 아무거나 써도 괜찮을까요?
 
