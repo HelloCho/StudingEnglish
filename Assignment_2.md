@@ -10,7 +10,7 @@ Second, I learn a responsibility and independence.
 
 In detail, I can't fall back on anyone else cover bils.
 
-so what i live alone is helpful be a well-rounded citizen.
+so living alone is helpful be a well-rounded citizen.
 
 ```
 
@@ -18,9 +18,9 @@ so what i live alone is helpful be a well-rounded citizen.
 ```
 I prefer searching the Internet.
 
-First, Searching the Internet is more information than books.
+First, the Internet has more information gives me.
 
-This is because, books have been limited an information by an author but
+This is because, books have limited information by an author but
 
 The internet is vast.
 
@@ -41,11 +41,11 @@ First, I am more comfortable.
 
 This is becasuse, I know well aware of roads and attractions.
 
-Second, I have to recall memory.
+Second, I can recall memory.
 
 To be specific, when i visit places again,
 
-i will bring back good memory.
+it will bring back good memory.
 
 As a result, i can recommend someone many attractions
 
@@ -56,7 +56,7 @@ so i will expand social skills.
 ```
 I prefer to have in person interview.
 
-First, I can speak easier communication.
+First, I can communicate more easily.
 
 This is because, when i call manager by phone, 
 
