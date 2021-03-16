@@ -47,7 +47,9 @@ To be specific, when i visit places again,
 
 i will bring back good memory.
 
-As a result, i will broaden the place's view.
+As a result, i can recommend someone many attractions
+
+so i will expand social skills.
 ```
 
 > # 전화 면접 vs 면대면 면접
