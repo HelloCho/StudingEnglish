@@ -18,7 +18,7 @@ so living alone is helpful be a well-rounded citizen.
 ```
 I prefer searching the Internet.
 
-First, the Internet has more information gives me.
+First, the Internet has more information
 
 This is because, books have limited information by an author but
 
