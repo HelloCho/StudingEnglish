@@ -1,4 +1,4 @@
-> # 1111
+> # 연예인은 아이들에게 좋은 본보기임
 ```
 I agree with the statement that
 
@@ -15,7 +15,7 @@ Second, TV is comming better technologies.
 For instance, People can watch all the contents with smartphone.
 ```
 
-> # 2222
+> # 사람들은 미래에 TV를 시청하지 않을 것임
 ```
 I disagree whi the statement that
 
@@ -34,7 +34,7 @@ this is because, Young people don't know what is good behavior as well
 so they they will see and copy anything.
 ```
 
-> # 333
+> # 결과보다 과정이 더 중요함
 ```
 I agree with the statement that
 
