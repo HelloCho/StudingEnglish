@@ -26,7 +26,7 @@ The internet is vast.
 
 Second, Searching the Internet is more convenient.
 
-For example, Even though i didn't visit the library,
+For example, Even though i don't visit the library,
 
 I can do homework at home.
 
