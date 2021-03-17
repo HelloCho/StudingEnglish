@@ -10,7 +10,7 @@ This is because, It is not carrying anywhere.
 
 so we cann't watch whenever want.
 
-Second, TV is comming better technologies.
+Second, TV is better technologies coming.
 
 For instance, People can watch all the contents with smartphone.
 ```
