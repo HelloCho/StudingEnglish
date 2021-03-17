@@ -60,7 +60,7 @@ First, I can communicate more easily.
 
 This is because, when i call manager by phone, 
 
-i have phone call ploblems such as call quality and misunderstanding.
+i have call ploblems such as call quality and misunderstanding.
 
 Second, I can express myself better.
 
