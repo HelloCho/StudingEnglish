@@ -10,7 +10,7 @@ Second, I learn responsibility and independence.
 
 In detail, I can't fall back on anyone else cover bils.
 
-so living alone is helpful be a well-rounded citizen.
+so living alone is helpful to be a well-rounded citizen.
 
 ```
 
