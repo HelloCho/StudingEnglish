@@ -6,7 +6,7 @@ First, I have a personal freedom.
 
 This is because, i live as i want from decorations to my lifestyle.
 
-Second, I learn a responsibility and independence.
+Second, I learn responsibility and independence.
 
 In detail, I can't fall back on anyone else cover bils.
 
